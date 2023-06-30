@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IreshaMP
+- 👋 Hi, I’m @Iresha0914
 - 👀 I’m interested in Computer Science
 - 🌱 I’m currently learning programming language
 - 📫 How to reach me madushanii619@gmail.com
